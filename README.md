@@ -14,3 +14,7 @@ found me on GTCS. im mostly in gtc
 ENGLISH is not my first language!!!!!!!
 
 
+i might be rude to you im sorryy
+
+
+
